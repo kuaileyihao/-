@@ -22,7 +22,7 @@
 加我potato号【klyhtb】，发你需要的学车资料。
 
 【使用potato聊天软件的步骤】
-①安装【VPN软件】旋风加速器https://www.xf37390.com/61KJUPG
+①安装【VPN软件】旋风加速器https://www.xf37390.com
 （复制到浏览器下载），点VPN里面的连上网络。
 ②访问土豆聊天软件官网，m.potato.im/（复制到浏览器打开），下载安装土豆。
 ③关闭VPN，注册土豆。
