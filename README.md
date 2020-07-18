@@ -12,13 +12,13 @@
 小小影视APP（最新电影电视剧综艺）：
  http://www.wangdunwen.com/?inviteCode=H026B6
 
-【必看】【必看】【必看】
-欢迎真人联系土豆号：@klyhtb，验证进【学车修车交流】群。群里可以分享视频，聊天，交友等，一起来分享幸福生活吧！
-分享的学车资料在potato 聊天软件群里面，
-下载地址：https://m.ppct.in/（复制到浏览器下载）
-加我potato号【klyhtb】，发你需要的学车资料。
+【春色派——NTR爱好者聚集地】：
+http://www.cspwife4.live/forum.php?x=538934
 
-【使用potato聊天软件的步骤】
+【小奶猫直播APP下载地址】http://ju3e.com/1825128
+
+
+【必看】【必看】【必看】【使用potato聊天软件的步骤】
 ①安装【VPN软件】旋风加速器https://www.xf37390.com
 （复制到浏览器下载），点VPN里面的连上网络。
 ②访问土豆聊天软件官网，https：//m.potato.im/
