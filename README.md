@@ -1,10 +1,9 @@
 # -klyhtb
 分享各种视频软件、直播软件、优质网址。
 快乐聊天做运动，幸福生活共分享！
-请关注微博【快乐一号】，
 有问题请咨询potato chat 账号：【klyhtb】～～
 【分享视频网站】
-7v355.com
+7v331.com
 5dhv.com
 2ycl.com
 9jpd.com
@@ -36,5 +35,5 @@ http://www.cspwife4.live/forum.php?x=538934
 证；也可与男生一样的方式验证。（录制视频也可）
 ③夫妻/情侣：内容同①②即可。
 欢迎联系土豆号：@klyhtb，验证进群。
-群里可以分享性生活，淫妻，换妻，直播做爱，约炮，交友，
+群里可以分享xsh，yinqi，huanqi，直播zuoai，yuepao，交友，
 恋爱等等。
